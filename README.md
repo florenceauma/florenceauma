@@ -1,4 +1,4 @@
-Florence Hi there 👋
+Hi there 👋Florence Auma
 - 🔭 I’m currently working on Design at Tunapanda
 - 🌱 I’m currently learning  at Tunapanda Institution
 - 👯 I’m looking to collaborate on working with other people
